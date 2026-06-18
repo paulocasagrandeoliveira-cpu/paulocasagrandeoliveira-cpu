@@ -11,3 +11,4 @@ Here are some ideas to get you started:
 - *️⃣Amos história 
 
 ![](https://media.tenor.com/7sjZ-bX-IyAAAAAM/iron-maiden-music.gif)
+![](https://media.tenor.com/g72MOO8_7agAAAAM/thin-lizzy-phil-lynott.gif)
