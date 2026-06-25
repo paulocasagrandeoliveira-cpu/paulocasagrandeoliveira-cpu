@@ -6,9 +6,9 @@ Here are some ideas to get you started:
 
 - 🎸Gosto de musica
 - 🇧🇷 Paraná
-- 🎮Amos jogos indies
+- 🎮Amo jogos indies
 - 📘Estudantes
-- *️⃣Amos história 
+- *️⃣Amo história 
 
 ![](https://media.tenor.com/7sjZ-bX-IyAAAAAM/iron-maiden-music.gif)
 ![](https://media.tenor.com/g72MOO8_7agAAAAM/thin-lizzy-phil-lynott.gif)
